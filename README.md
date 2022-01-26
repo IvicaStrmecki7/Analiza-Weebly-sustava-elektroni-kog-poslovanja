@@ -1,1 +1,1 @@
-# Analiza-Weebly-sustava-elektroni-kog-poslovanja
+# Analiza-Weebly-sustava-elektronickog-poslovanja
